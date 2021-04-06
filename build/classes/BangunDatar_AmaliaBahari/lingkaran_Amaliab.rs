@@ -1,0 +1,1 @@
+Inheritance_AmaliaBahari.lingkaran_Amaliab
